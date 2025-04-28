@@ -50,6 +50,3 @@ Quer saber mais ou integrar nossas soluções?
 🌐 **Website:** [payzu.com.br](http://payzu.com.br)
 
 ---
-
-Quer que eu também te entregue uma **versão compacta** (mais curta) caso você queira deixar o perfil mais "clean"? 🚀  
-Posso também gerar uma sugestão de **banner** ou **imagem destacada** se quiser deixar mais estilizado! 🎨
